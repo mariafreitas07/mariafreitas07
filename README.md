@@ -1,4 +1,4 @@
-<img width="50%" src="https://imagensemoldes.com.br/wp-content/uploads/2020/09/Desenho-Livros-PNG-1024x904.png">
+<img width="50%" src="https://pngimage.net/wp-content/uploads/2018/05/chicago-fire-png-6.png">
 
 ### Oii 👋
 Eu sou aluna do Ensino Médio Integrado a Desenvolvimento de Sistemas e estou no último ano.
