@@ -2,6 +2,6 @@
 
 ### Oii
 Eu sou aluna do Ensino Médio Integrado a Desenvolvimento de Sistemas e estou no último ano
-- 🌟 Tenho a leitura como um hobby
-- 🌟 Amo livros
-- 🌟Quero me formar em RI
+-  Gosto muito de ler
+-  Não vejo a hora de ir para a faculdade
+- Quero me formar em RI
